@@ -1,0 +1,2 @@
+# premium-herb-candle-001-herb-candle-infusing-botanic
+Stop throwing herbs into wax and hoping for the best. The Herb Candle Infusing &amp; Botanical Craft Lab gives you a repeatable, data-driven system to capture what works—so every batch is intentional, not accidental.  This Notion template solves the chaos of scattered notes, wasted ingredients, and inconsistent candle batches by acting as your digital
